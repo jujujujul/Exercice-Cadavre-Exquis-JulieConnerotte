@@ -14,3 +14,6 @@ ah tu est sûr !!
 
 C'est malin, c'est presque l'heure de manger. Vous avez pas des pistaches de terre sur vous?
 Il serait peut etre pas mal d'en planter en dessous de nos bureaux.
+
+*J'ai faim* à choisir je préfère chasser et manger le **Gobelin** mais je ne sais pas si sur cette
+terre plate il sagit d'une espèce protègée !?
